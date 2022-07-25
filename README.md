@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rasheed
-- 👀 I’m interested in Web3 Development 
-- 🌱 I’m currently learning Solidit & React, Re
+- 👀 I’m interested in EveryThing BloCkChain Related
+- 🌱 I’m currently learning Solidit & React
 - 💞️ I’m looking to collaborate on Web3 Projects 
 - 📫 How to reach me ...sinzupro@gmail.com
 
