@@ -1,4 +1,4 @@
- Hey there! I'm Rasheed 🤝
+ Hey there! 🤝
 🔭 I'm a Self Taught Web3 Programmer.
 🌱 I'm very Passionate on learning New Technologies Everyday.
 💞️ I’m looking to collaborate on Web3 Projects 
